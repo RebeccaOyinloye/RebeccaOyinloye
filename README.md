@@ -8,7 +8,7 @@
 - 💞️ I’m looking to collaborate on projects involving:
 • Data Analysis
 • Data visualization. 
-- 📫 How to reach me rebeccaoyinooye@gmail.com
+- 📫 How to reach me rebeccaoyinooye2020@gmail.com
 • linkedin: http://linkedin.com/in/rebecca-oyinloye
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I'm excited to share my data driven projects and insights soon
